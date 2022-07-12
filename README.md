@@ -2,5 +2,5 @@
 - 👀 I’m interested in Mobile World
 - 🌱 I’m currently learning Frech 🇫🇷
 - 📫 How to reach me:
-  - rpadnevych@tripadvisor.com
+  - rpadnevych@thefork.com
   - https://www.linkedin.com/in/ruslan-padnevych/
